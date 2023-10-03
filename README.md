@@ -1,1 +1,0 @@
-# novprayogi.github.io
